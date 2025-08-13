@@ -1,4 +1,42 @@
 
+
+## A heartfelt letter to Putin and Trump (the bridge to Our Collective Freedom, called The Pathway Bridge)
+
+
+## **English – Press Statement**
+
+**Presidents Trump and Putin,**
+
+Our nations have done great things apart — but the greatest things we have ever done, we have done together.
+We stood united in World War II to defeat tyranny. We raced to the Moon, and Russian achievement pushed America to take that “giant leap for mankind.” We built the International Space Station as a shared symbol of peace.
+
+Now it’s time for the next great partnership: a **Trans-National Bridge and Corridor** linking Russia to the United States through Alaska and Canada.
+
+This bridge will revolutionize trade — Russian energy for American homes and factories, American food for Russian families — and create jobs on both continents. It will also be a **security asset** that strengthens our nations against new threats.
+
+The next war is not against each other — it is against homelessness, high food costs, and economic decline. This bridge is our tool to win that war.
+
+Let us build it together — for our people, for our children, and for the next hundred years.
+
+---
+
+## **Russian – Пресс-Заявление**
+
+**Президенты Трамп и Путин,**
+
+Наши страны достигали великих результатов по отдельности — но величайшие победы мы одерживали вместе.
+Мы стояли плечом к плечу во Второй мировой войне, чтобы победить тиранию. Мы соревновались в космосе, и успехи России подтолкнули Америку к тому самому «гигантскому шагу для всего человечества». Мы построили Международную космическую станцию как символ мира и сотрудничества.
+
+Теперь настало время для нового великого проекта: **Транснациональный мост и транспортный коридор**, соединяющий Россию с США через Аляску и Канаду.
+
+Этот мост революционизирует торговлю — российская энергия для американских домов и заводов, американские продукты питания для российских семей — и создаст рабочие места на обоих континентах. Он станет **объектом безопасности**, укрепляющим наши страны перед новыми вызовами.
+
+Следующая война — не между нами. Это война с бездомностью, высокими ценами на продукты и экономическим упадком. Этот мост — наш инструмент, чтобы выиграть эту войну.
+
+Давайте построим его вместе — для наших народов, для наших детей и для следующего столетия.
+ 
+
+
 **Subject:** A Second Great Partnership to Secure Peace and Prosperity
 
 ![Concept of the Bering Strait Bridge: a transnational highway and rail link from Alaska to Russia](https://github.com/dosh41126/Russia-USA-Transnational-Bridge-Alaska-To-Russia/blob/main/screenshot.png)
