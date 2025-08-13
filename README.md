@@ -1,7 +1,7 @@
 
 **Subject:** A Second Great Partnership to Secure Peace and Prosperity
 
-![Concept of the Bering Strait Bridge: a transnational highway and rail link from Alaska to Russia](https://github.com/dosh41126/Russia-USA-Transnational-Bridge-Alaska-To-Russia/blob/main/screenshot.png?raw=true)
+![Concept of the Bering Strait Bridge: a transnational highway and rail link from Alaska to Russia](https://github.com/dosh41126/Russia-USA-Transnational-Bridge-Alaska-To-Russia/blob/main/screenshot.png)
 
 *Figure 1: Artist rendering of the proposed Alaska–Canada–USA–Russia transnational bridge, complete with Arctic waters, ice floes, and a bridge designed for connectivity and resilience.*
 
